@@ -1,3 +1,9 @@
-# References
+my-resume
+santa clause
+the north pole
 
-* octocat 1 😈
+the grim reaper
+boundry between life and death
+
+medusa
+her lair
